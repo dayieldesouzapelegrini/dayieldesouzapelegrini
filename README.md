@@ -9,4 +9,7 @@ meu nome é daniel pelegrini
 -### VOCE entra em contanto conmigo 📫
 
 pelegrini.daniel@escola.pr.gov.BR
-pelegrini.daniel@escola.pr.gov.br
+pelegrini.daniel@escola.pr.gov.br 
+
+
+![](https://media.tenor.com/i7llTDaTPtUAAAAC/naruto.gi)
